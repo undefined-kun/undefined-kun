@@ -1,7 +1,7 @@
 # Hi 👋 @undefined-kun here.
 
 * 🎈 Little-known Scratcher (Active in groups)
-* 🎮 Terraria player
+* 🎮 Steam player
 * 🏫 Freshman in high school
 * 🌱 Web developer
 * ❤️ Computer Science lover
